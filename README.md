@@ -8,7 +8,7 @@
 
 ## Fun Fact :tada:
 
-I like soccer ⚽
+I like soccer 
 
 ## Projects :rocket:
 
